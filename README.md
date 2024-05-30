@@ -1,1 +1,0 @@
-# Learning-with-a-teacher
